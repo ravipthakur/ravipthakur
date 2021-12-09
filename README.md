@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ravi
+- 👋 Hi, I’m Ravi
 - 👀 Student @mikoeln
 - 🌱 Excited about augmented reality & w3b
 - 📫 Get in touch with me: contact@rpt.media
