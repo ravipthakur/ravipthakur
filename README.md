@@ -1,4 +1,3 @@
 - 👋 Hi, I’m Ravi
 - 👀 Student @mikoeln
-- 🌱 Excited about augmented reality & w3b
 - 📫 Find me: @ravipthakur
