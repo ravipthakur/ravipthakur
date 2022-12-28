@@ -1,3 +1,2 @@
 - 👋 Hi, I’m Ravi
-- 👀 Student @mikoeln
 - 📫 Find me: @ravipthakur
